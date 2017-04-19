@@ -1,3 +1,10 @@
 indonesia raya
 
-JKL
+jshdfjshd
+shdfksdhfkd
+sdkfhskdfhkjshfd
+jakarta
+indonesia
+bekasi 
+jawa barat
+jawa tengah
