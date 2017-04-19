@@ -1,4 +1,3 @@
 indonesia raya
 
 MERDEKA
-OK
