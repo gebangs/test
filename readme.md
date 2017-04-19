@@ -1,3 +1,1 @@
 indonesia raya
-
-SUDO 
