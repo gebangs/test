@@ -1,6 +1,2 @@
 indonesia raya
 
-
-
-UBUNTU
-
